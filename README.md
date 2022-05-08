@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JonesTheDeveloper
+- 👀 I’m interested in Developing cyber things
+- 🌱 I’m currently learning programing
+- 📫 How to reach me on my discord JonesDev#7621
